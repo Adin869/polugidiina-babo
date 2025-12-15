@@ -1,1 +1,1 @@
-# polugidiina-babo
+# polugodi-nji-projekt
